@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 💜
 
 I'm Bushra Aldosari, a student at the University of Melbourne.
 I worked as a teaching assistant at King Khalid University in Saudi Arabia for almost five years.
